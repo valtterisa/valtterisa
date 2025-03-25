@@ -2,4 +2,8 @@ building.
 
 all inquiries/business⬇️
 
-[valtteri@bittive](mailto:valtteri@bittive.com)
+[send email](mailto:valtteri@bittive.com)
+
+or 
+
+[book a meeting](https://bittive.com/#contact)
