@@ -1,5 +1,5 @@
-Building.
+building.
 
-## Contact
+## All inquiries/business
 
-- **Email:** [valtteri@bittive.com](mailto:valtteri@bittive.com)
+[my email](mailto:valtteri@bittive.com)
