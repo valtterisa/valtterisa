@@ -1,4 +1,4 @@
-building a new product designed to democratize the development and management of websites with AI.
+building a product designed to democratize the development and management of websites and also doing software consulting
 
 all inquiries/business⬇️
 
