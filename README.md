@@ -1,4 +1,4 @@
-building @builddrr and also doing software consulting
+building builddrr.com and also doing software consulting
 
 all inquiries/business⬇️
 
