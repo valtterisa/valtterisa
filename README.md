@@ -2,8 +2,4 @@ building [**builddrr.com**](https://builddrr.com) and also doing software consul
 
 all inquiries/business⬇️
 
-[send email](mailto:valtteri@bittive.com)
-
-or 
-
-[book a meeting](https://bittive.com/#contact)
+[send email](mailto:savonen.emppu@gmail.com)
