@@ -1,4 +1,4 @@
-building [**builddrr.com**](https://builddrr.com) and also doing software consulting
+building and doing software consulting
 
 all inquiries/business⬇️
 
