@@ -9,6 +9,6 @@ and much more!
 
 all inquiries/business⬇️
 
-[send email](mailto:savonen.emppu@gmail.com)
+[send email](mailto:savonen.emppu@gmail.com) or [or DM on X](https://x.com/vvaltterisa)
 
 [my portfolio](https://https://www.valtterisavonen.fi) - Personal site including my blog
